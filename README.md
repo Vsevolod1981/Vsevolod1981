@@ -12,5 +12,7 @@ https://github.com/Vsevolod1981/Personal_Projects
 Всеволод Михайлович Сергеев
 
 Телефон: +7-921-977-70-23 (Telegram, WhatsApp)
+
 E-mail: vsevolod.sergeev@mail.ru
+
 https://linkedin.com/in/Vsevolod1981
