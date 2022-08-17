@@ -9,6 +9,7 @@ https://github.com/Vsevolod1981/Skillfactory_Projects
 https://github.com/Vsevolod1981/Personal_Projects
 
 Мое резюме можно посмотреть здесь:
+
 https://drive.google.com/drive/u/0/folders/12QE5hHVt0RdMUSn9Pkrwl6mseUp_WTN-
 
 С уважением,
